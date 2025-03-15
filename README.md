@@ -1,4 +1,4 @@
-## Hi Brother/Sister 👋 
+## Hi  👋 
 
 Thank you for visting my profile. 🙇 </br>
 ![azur-lane-anime](https://github.com/user-attachments/assets/5c631d31-a070-4cba-bca4-6495f0d23ab2) 
